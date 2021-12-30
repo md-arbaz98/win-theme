@@ -6,7 +6,8 @@ Official Theme packs 😎😎
 
 Support Windows 11🦄 Windows 10🐉🐨 Windows 7🐨
 
-Direct download in one zip   
+Direct download in one zip
+
 or
 
 Can also download the same from official site - 
