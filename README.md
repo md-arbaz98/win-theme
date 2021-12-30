@@ -10,6 +10,6 @@ Direct download in one zip
 
 or
 
-Can also download the same from official site - 
+Can also download in different categories the same from official site - 
 
 https://support.microsoft.com/en-us/windows/desktop-themes-94880287-6046-1d35-6d2f-35dee759701e
