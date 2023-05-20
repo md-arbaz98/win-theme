@@ -2,13 +2,10 @@
 
 Windows One-Click 🪁🪁 Theme Packs 200+ collection   <<<<<<<<<<<<<<<<<
 
-Official Theme packs 😎😎
+Official Theme packs
 
 Support Windows 11🦄 Windows 10🐉🐨 Windows 7🐨
 
-Direct download in one zip
-
-or
 
 Can also download in different categories the same from official site - 
 
